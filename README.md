@@ -27,6 +27,9 @@ i. nicholas-swanson-56-unsplash.jpg , by unplash.com
 
 k. Kramer & Crew GmbH & Co, slide master and my travel costs sponsor, #kuc #mehrCommunity
 
+l. Rene de la Motte, Co-organizer Azure Bonn Meetup, supporting idea and concept  
+
+m. Gregor Reimling, Organizer Azure Bonn Meetup, supporting idea and concept, main sponsor of that evening  
 
 
 
